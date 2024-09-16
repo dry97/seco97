@@ -10,4 +10,7 @@ Utilizo esse espaço para minha organização e compartilhamento dos meus projet
 
 00001128506506sp@al.educacao.sp.gov.br
 
+
+
+
 ![](https://media1.tenor.com/m/-nXGc8uV27oAAAAC/youre-welcome-lion-king.gif)
